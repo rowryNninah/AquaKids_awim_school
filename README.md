@@ -1,1 +1,1 @@
-# AquaKids_awim_school
+# AquaKids_Swim_school
